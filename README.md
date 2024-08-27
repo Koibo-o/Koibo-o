@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Koibo-o
-- 👀 I’m interested in video games and code
+- 👋 Hi, I’m Koibo-o
+- 👀 I’m interested in video games, code, and cyberbullting children.
 - 🌱 I’m currently learning java
 - 📫 How to reach me .koibo. (Discord)
 - ৻( •̀ ᗜ •́ ৻)
